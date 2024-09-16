@@ -1,0 +1,1 @@
+# lab1_IR14_Nasypanyi
